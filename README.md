@@ -10,3 +10,7 @@ Mon vdd est dans un autre délire.
 Il s'avance vers la jeune femme  
 Il l'attrape !  
 Et là, ...  
+
+
+Il lui mord le bras car il avait faim.
+
